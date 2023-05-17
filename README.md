@@ -1,4 +1,3 @@
-# AboutMe
 # 💫 About Me:
 A 22 y.o boy who is looking for peace✨<br>I study mechanics⚙️, but I'm not interested in it 🙃<br>A lover of programming 🧑🏻‍💻<br>maybe a future data scientist 🧮<br>Anime lover🍿<br>ZZA
 
